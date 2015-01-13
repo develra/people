@@ -9,7 +9,7 @@ Zhili Yang
 
 ## Favorite Food
 
-Anything spciy
+dessert
 
 ## Favorite Programming Language
 
